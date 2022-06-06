@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @KillerKill010
-- 👀 I’m interested in hacer traducciones, do translations
+- 👀 I’m interested in traducciones, do translations
 - 🌱 I’m currently learning ... Programation
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
